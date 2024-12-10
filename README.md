@@ -1,0 +1,1 @@
+# destination_for_fast_food
